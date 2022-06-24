@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dudalzz
+- 👀  meu email  de contato  é  silva.eduarda22@escola.pr.gov.br
+- 🌱 nature 
+- 💞️ odeio todos 
+- 📫  meu insta  @silvaywr 
